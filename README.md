@@ -1,4 +1,4 @@
 ### Hi there 👋
 
-### 🌱 I’m currently learning ...the future!
+### 🌱 I’m currently learning ...the future!...
 
